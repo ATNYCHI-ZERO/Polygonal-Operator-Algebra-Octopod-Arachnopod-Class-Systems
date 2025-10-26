@@ -1,0 +1,1 @@
+# Polygonal-Operator-Algebra-Octopod-Arachnopod-Class-Systems
